@@ -1,4 +1,4 @@
-![profile](randomizer.gif)
+  anuragdongare1@gmail.com![profile](randomizer.gif)
 
 <img src="home.png" width="450">
 
